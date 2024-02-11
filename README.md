@@ -1,0 +1,1 @@
+# Lista-1-10-Entrada-Sa-da-e-Operadores-Aritm-ticos---Prof.-F-bio
